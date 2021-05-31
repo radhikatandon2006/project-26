@@ -1,0 +1,1 @@
+Basically to make choclate cookies you need to Preheat the oven,Sift flour and brown sugar into a bowl; stir in eggs. Mix butter into flour mixture until dough is creamy; fold in chocolate chips. Spoon dough onto a baking sheet, keeping them about 3 inches apart.Bake in the preheated oven until slightly brown, 10 to 15 minutes. Cool.
